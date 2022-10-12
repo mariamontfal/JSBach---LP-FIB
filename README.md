@@ -2,6 +2,8 @@
 
 ## GEI-LP (2021-2022 Q2)
 
+Nota: 10
+
 ## Autora
 
 Maria Montalvo Falcón
